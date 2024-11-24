@@ -7,7 +7,7 @@ Teacher's expectations
 4.Be able to push us/get us outside our comfort
 5. Wholistic approach to their support
 
-Our expectations
+My expectations
 
 1. One day at a time
 2. Don't be afraid to be seen trying
